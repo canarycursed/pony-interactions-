@@ -1,3 +1,4 @@
+<img width="322" height="231" alt="MOREEEEEEEE" src="https://github.com/user-attachments/assets/45b52fa2-389e-492a-b42e-43a38f525170" />
 # pony-interactions-
  ˚₊‧꒰ა if youre reading this and you spot yourself, youre all so lovely to cuddle and talk to!!!  ˚₊‧꒰ა
 <img width="507" height="277" alt="Grians" src="https://github.com/user-attachments/assets/d1c7cd25-89e4-4465-939b-83c70fcafd82" />
