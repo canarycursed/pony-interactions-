@@ -8,6 +8,6 @@
 <img width="472" height="542" alt="GTWSCARRRRRRRRRR" src="https://github.com/user-attachments/assets/d0bd1576-2e06-4199-971c-b8adff6b27fe" />
 <img width="791" height="527" alt="cheeeeeeese" src="https://github.com/user-attachments/assets/91a257b2-bc5d-4142-869d-a0d7d61b9eee" />
 <img width="377" height="406" alt="bum" src="https://github.com/user-attachments/assets/57e7b4f1-f6e1-4482-9b17-201586f1f053" />
-<img width="682" height="415" alt="salmon,,," src="https://github.com/user-attachments/assets/060df308-b285-409a-ad1f-cb3a3f0335f3" />
-<img width="597" height="456" alt="BBBBBALD" src="https://github.com/user-attachments/assets/c4830090-5224-465c-a292-46902bc2f857" />
-<img width="546" height="581" alt="GRUMBO" src="https://github.com/user-attachments/assets/d00b1556-d95f-47f0-9ad8-b326b2591fac" />
+<img width="682" height="415" alt="salmon,,," src="https://github.com/user-attachments/assets/060df308-b285-409a-ad1f-cb3a3f0335f3"
+<img width="546" height="581" alt="GRUMBO" src="https://github.com/user-attachments/assets/8d7ce5c6-9bcc-4b4c-ab6c-8d7eb69d720c" />
+<img width="597" height="456" alt="BBBBBALD" src="https://github.com/user-attachments/assets/4c0f7cda-a76c-45b6-b526-1c58e9bf637e" />
